@@ -1,2 +1,2 @@
-this repositorie is just a bungh of shit
+this repositorie is just a bunch of shit
 Doesn't have any use
