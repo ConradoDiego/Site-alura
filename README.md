@@ -1,2 +1,2 @@
-this repositorie is just a bunch of shit
+Just homework
 Doesn't have any use
